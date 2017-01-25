@@ -1,2 +1,0 @@
-evan
-Boston Red Sox
